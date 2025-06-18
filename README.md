@@ -1,5 +1,5 @@
 # 💫 About Me:
-i am preety cool
+i am garvit i like building apps and websits maybe 
 
 
 ## 🌐 Socials:
