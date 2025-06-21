@@ -1,5 +1,5 @@
 # 💫 About Me:
-i am garvit i like building apps and websits maybe 
+i am garvit i like building apps and websits 
 
 
 ## 🌐 Socials:
